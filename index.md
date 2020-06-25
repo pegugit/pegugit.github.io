@@ -11,3 +11,10 @@ Sie erwies sich als talentierte Schülerin und baute eine enge Freundschaft zu R
 * Loyal
 * tapfer
 * mutig 
+
+Sie sagte:
+
+> Ich denke nur äußerst logisch, 
+> daher blende ich unwesentliche Details gleich aus 
+> und nehme deutlich das wahr, was andere übersehen. 
+> - Gefunden auf: https://www.myzitate.de/hermine-granger/
