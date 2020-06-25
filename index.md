@@ -18,4 +18,3 @@ Sie sagte:
 > daher blende ich unwesentliche Details gleich aus 
 > und nehme deutlich das wahr, was andere übersehen. 
 > (Gefunden auf: https://www.myzitate.de/hermine-granger/)
-
