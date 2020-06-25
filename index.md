@@ -19,7 +19,7 @@ Sie sagte:
 > und nehme deutlich das wahr, was andere übersehen. 
 > (Gefunden auf: https://www.myzitate.de/hermine-granger/)
 
-![Hermine](hermine.jpg)
+![Hermine](/hermine.jpg)
 
 
 
